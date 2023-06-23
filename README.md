@@ -7,6 +7,6 @@ For job offers you can freely write me on [Telegram](https://t.me/maxuver).
 
 Also will be happy to get any feedback from you.
 
-![](IMG_5696.JPG)
+![](DSC_0781.jpg)
 
-Last Updated: 1 June 2023
+Last Updated: 23 June 2023
